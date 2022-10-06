@@ -1,2 +1,1 @@
-# blockedgamez
-unblocked gamez
+https://www.proxysite.com/
